@@ -1,1 +1,1 @@
-﻿# Bolum-Sonu-Calimasi
+﻿# Bolum-Sonu-Calismasi
